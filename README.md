@@ -1,1 +1,1 @@
-# Equity-Research-Note-
+# Equity Research Note
